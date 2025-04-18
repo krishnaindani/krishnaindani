@@ -7,4 +7,4 @@
 About myself 
 
 - Working as a Staff Observability Engineer at Shipt, San Francisco, CA. 
-- I am a photographer by hobby.
+- Enjoy doing photography in my free time. 
